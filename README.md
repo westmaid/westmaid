@@ -1,16 +1,15 @@
-## Hi there 👋
+# West Maid: #1 House Cleaning And Maid Service in Perth
 
-<!--
-**westmaid/westmaid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[**Bond Cleaning Brisbane**](https://westmaid.com.au) is a top-rated bond cleaning company in Perth. We offer tailored cleaning services for your homes, apartments and offices.
 
-Here are some ideas to get you started:
+Reviews: **1129 reviews**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Rating: **4.9 rating**
+
+Email: contact@bondcleaningbrisbane.net.au
+
+Phone: +61 414076980
+
+Address: 151 George St, Brisbane City QLD 4000 Australia
+
+Hours: Mon – Sun: 9:00 AM – 5:00 PM
